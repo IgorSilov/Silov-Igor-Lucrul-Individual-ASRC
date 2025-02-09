@@ -1,1 +1,0 @@
-# Silov-Igor-Lucrul-Individual-ASRC
